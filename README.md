@@ -1,2 +1,13 @@
 # who-am-i.github.io
-kik
+10 word description
+-
+-
+-
+-
+-
+-
+-
+-
+-
+
+-
